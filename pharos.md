@@ -1,3 +1,6 @@
+
+ https://pharoshub.xyz/
+ 
  Max Level in Pharos Testnet https://x.com/avzcrypto/status/1940798987709395362
 
  [Step 1]  → Connect & Socials  
