@@ -1,4 +1,33 @@
 
+Important : Pharos Testnet Level 5 
+
+To complete Level 5 on Pharos, you need to collect a total of 20,000 points.
+
+However you can collect around 4,500 points by doing new tasks.
+
+Primuslabs Send 
+(First time 100 Points then 10 on repeat ones.)  91 times max.
+Total : 1000 Pts
+
+AutoStaking
+(First time 100 Points then 10 on repeat ones.)  91 times max.
+Total : 1000 Pts
+
+Fiamma Bridge
+(First time 100 Points then 10 on repeat ones.)  91 times max.
+Total : 1000 Pts
+
+Brokex
+(First time 100 Points then 10 on repeat ones.)  91 times max.
+Total : 1000 Pts
+
+AquaFlux
+(500 points on first transaction.)
+Total : 500 Pts
+
+Track your progress and keep grinding! 💪
+
+
  https://pharoshub.xyz/
  
  Max Level in Pharos Testnet https://x.com/avzcrypto/status/1940798987709395362
