@@ -1,3 +1,4 @@
+https://x.com/MoStory8/status/1949096458549883171?s=19
 OG airdrop https://x.com/Sofilodefi/status/1942300655223283840
 
 1. Claim Test Tokens 
