@@ -1,4 +1,6 @@
 
+https://x.com/MaransCrypto/status/1948750863058784571?s=19
+
 Important : Pharos Testnet Level 5 
 
 To complete Level 5 on Pharos, you need to collect a total of 20,000 points.
